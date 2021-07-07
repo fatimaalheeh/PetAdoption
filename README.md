@@ -5,7 +5,7 @@
 
 # 🚩 Save a Soul
  *Animals are the bridge between us and the beauty of all that is natural. They show us what's missing in our lives, 
-and how to love ourselves more completely and unconditionally.They connect us back to who we are,and to the purpose of why we're here 🐕.
+and how to love ourselves more completely and unconditionally🐕.
 **Save a soul** is a webstie that care's about the animals , aims to make all the countries warm and safe place for the pets that need care and love , 
 in our website we will give you the privilege to save a soul, through our website you can help the animals to be adopted ,
 and you will have the ability to adopt the animal you like ,so you can give it the place and love they desrves 🏩.*
